@@ -32,6 +32,6 @@ I'm a **Software Development Student** from **Ireland**, currently working my wa
 
 ---
 
-> "The struggle itself towards the heights is enough to fill a man's heart." – Albert Camus
+> "The struggle itself towards the heights is enough to fill a man's heart. One must imagine Sisyphus happy." – Albert Camus
 
 ---
